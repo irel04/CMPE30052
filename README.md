@@ -1,1 +1,0 @@
-# My-nickname-using-asterisk
